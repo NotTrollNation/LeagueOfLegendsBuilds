@@ -1,2 +1,2 @@
-#League Of Legends Builds
+#LeagueOfLegendsBuilds
 
