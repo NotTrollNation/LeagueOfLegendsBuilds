@@ -3,5 +3,5 @@ Welcome to an Organized List of Champions and their Builds. Each Link will direc
 
 ___
 
-Champions:
+### Champions:
 
