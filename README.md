@@ -5,3 +5,5 @@ ___
 
 ### Champions:
 
+Tristana
+* [No You The Bomb Tristana](https://www.instagram.com/p/CDC_QoTAg5w/?utm_source=ig_web_copy_link)
